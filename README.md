@@ -11,3 +11,13 @@
 Bản eng vol 6: [The Kept Man of the Princess Knight](https://yenpress.com/series/the-kept-man-of-the-princess-knight-light-novel)
 
 Bản JP vol 7: [姫騎士様のヒモ７【電子特別版】](https://bookwalker.jp/de0f346025-b602-434e-bf86-9fc6d4494080/)
+
+# Web Novel Ore wa Gimai ni Uso wo Tsuku ~Chi no Tsunagaranai Imouto wo Ore ga Hikitoru koto ni Shita~ | END
+
+![](https://pbs.twimg.com/media/HUZ6kywagAA6l7U?format=jpg&name=large)
+
+**Thể loại:** Comedy, Romance, Drama, Slice of Life
+
+**Tác giả:** Shirono Shiro
+
+**ĐÁNH GIÁ:** Nhẹ nhàng. Cốt truyện hay nếu đọc bản web novel mỗi ngày 1 chương
