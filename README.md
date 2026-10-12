@@ -12,7 +12,7 @@ Bản eng vol 6: [The Kept Man of the Princess Knight](https://yenpress.com/seri
 
 Bản JP vol 7: [姫騎士様のヒモ７【電子特別版】](https://bookwalker.jp/de0f346025-b602-434e-bf86-9fc6d4494080/)
 
-# Web Novel Ore wa Gimai ni Uso wo Tsuku ~Chi no Tsunagaranai Imouto wo Ore ga Hikitoru koto ni Shita~ | END
+# Web Novel Ore wa Gimai ni Uso wo Tsuku ~ Chi no Tsunagaranai Imouto wo Ore ga Hikitoru koto ni Shita~ | END
 
 ![](https://pbs.twimg.com/media/HUZ6kywagAA6l7U?format=jpg&name=large)
 
