@@ -23,3 +23,13 @@ Bản JP vol 7: [https://bookwalker.jp/de0f346025-b602-434e-bf86-9fc6d4494080/](
 **ĐÁNH GIÁ:** Nhẹ nhàng. Cốt truyện hay nếu đọc bản web novel mỗi ngày 1 chương
 
 Link web novel: [https://ncode.syosetu.com/n0855hp/](https://ncode.syosetu.com/n0855hp/)
+
+# A Tale of the Secret Saint
+
+![](https://pbs.twimg.com/media/HUaAVHWaMAAtES0?format=jpg&name=medium)
+
+**Thể loại:** Action, Adventure, Fantasy, Magic
+
+**Tác giả:** Mahito Aobe - **Minh họa:** chibi
+
+**ĐÁNH GIÁ:** Hề. Đọc novel hay hơn anime. Điểm hay của bộ nya2 nữ 9 suy nghĩ tầm phào tìm cách trả lời cho hợp lý nhất nhưng tụi kia overthinking.
