@@ -21,3 +21,5 @@ Bản JP vol 7: [姫騎士様のヒモ７【電子特別版】](https://bookwalk
 **Tác giả:** Shirono Shiro
 
 **ĐÁNH GIÁ:** Nhẹ nhàng. Cốt truyện hay nếu đọc bản web novel mỗi ngày 1 chương
+
+Link web novel: [https://ncode.syosetu.com/n0855hp/](https://ncode.syosetu.com/n0855hp/)
