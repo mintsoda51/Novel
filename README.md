@@ -36,6 +36,8 @@ Link web novel: [https://ncode.syosetu.com/n0855hp/](https://ncode.syosetu.com/n
 
 # Fate Prototype: Fragments of Sky Silver
 
+![](https://pbs.twimg.com/media/HUaDIJsa4AAgELS?format=jpg&name=4096x4096)
+
 **Thể loại:** Fantasy, Slice of Life, Action, Romance
 
 **Tác giả"** Hikaru Sakurai - **Minh họa:** Nakahara
