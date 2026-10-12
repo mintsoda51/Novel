@@ -40,6 +40,17 @@ Link web novel: [https://ncode.syosetu.com/n0855hp/](https://ncode.syosetu.com/n
 
 **Thể loại:** Fantasy, Slice of Life, Action, Romance
 
-**Tác giả"** Hikaru Sakurai - **Minh họa:** Nakahara
+**Tác giả:** Hikaru Sakurai - **Minh họa:** Nakahara
 
-**ĐÁNH GIÁ:** Mong chờ đánh nhau say khi xem Unlimited Blade Works thì sẽ thấy nó chán. Nhưng nếu thích lãng mãn và chủ nghĩa anh hùng thì sẽ thấy nó hay. 🤌 Approved
+**ĐÁNH GIÁ:** Mong chờ đánh nhau sau khi xem anime Unlimited Blade Works thì sẽ thấy nó chán. Nhưng nếu thích lãng mãn và chủ nghĩa anh hùng thì sẽ thấy nó hay. 🤌 Approved
+
+# Ai toka koi toka, kudaranai | 愛とか恋とか、くだらない。| Tình yêu và sự lãng mạn đều vô nghĩa.
+
+![](https://pbs.twimg.com/media/HUaIPtBagAEzN5G?format=jpg&name=medium)
+
+**Thể loại:** Romance, Drama
+
+**Tác giả:** Hibariyu **Minh họa:** Miwano Rag
+
+**ĐÁNH GIÁ:** Nội dung FWB, trên tình bạn dưới tình yêu. Đây là novel đầu tiên của nội dung này mà t đọc. Vài bộ nội dung gần giống đọc riết cũng bình thường.
+
