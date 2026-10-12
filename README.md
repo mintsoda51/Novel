@@ -54,3 +54,14 @@ Link web novel: [https://ncode.syosetu.com/n0855hp/](https://ncode.syosetu.com/n
 
 **ĐÁNH GIÁ:** Nội dung FWB, trên tình bạn dưới tình yêu. Đây là novel đầu tiên của nội dung này mà t đọc. Vài bộ nội dung gần giống đọc riết cũng bình thường.
 
+# "Bijin de Okanemochi no Kanojo ga Hoshii" to Ittara, Wakeari Joshi ga Yattekita Ken. | When I Said, “I Want a Beautiful and Rich Girlfriend,” a Girl with Circumstances Showed Up
+
+![](https://pbs.twimg.com/media/HUbP7qHawAEcHx5?format=jpg&name=large)
+
+**Thể loại:** Adult, Comedy, Drama, Romance, Slice of Life
+
+**Tác giả:** Komiyaji Chiji **Minh họa:** ReTake
+
+**ĐÁNH GIÁ:** Sếch tàn bạo. Lý do nó rất là xàm đó. Nữ chính sợ bị gả cho dirty old man nên đã chơi xả láng.
+
+
